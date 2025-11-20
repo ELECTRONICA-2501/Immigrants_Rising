@@ -77,3 +77,8 @@ Educational and legal guidance for students navigating immigration options.
 Whether you have work authorization or not, your skills, your discipline, and your mindset are long‑term assets. Keep building. Keep learning. And always remember:
 
 > **Hope is a muscle — train it every day.**
+
+
+Book 30 min meeting with me to discuss resume building and career exploration: 
+
+Calendly [Link](https://calendly.com/sal-hndrx/30min)
